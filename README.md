@@ -70,7 +70,6 @@ A case study on cybercrime was developed along with a prevention checklist focus
 
 * GitHub Profile: https://github.com/singhrudraveer06-cmyk
 * LinkedIn Profile: https://www.linkedin.com/in/rudraveer-singh-0509281b9/
-* Google Form: (Add your link here)
 
 ---
 
